@@ -1,0 +1,1 @@
+# staticnation.github.io
